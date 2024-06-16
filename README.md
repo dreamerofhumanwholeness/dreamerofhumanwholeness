@@ -1,7 +1,7 @@
 hii you can find me by the hoyoverse area or outside the library
 
 this is still a wip
-
+pt rentry is https://rentry.co/whatswiththesekromiesdissinmygirl
 <!--
 **dreamerofhumanwholeness/dreamerofhumanwholeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
