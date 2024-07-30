@@ -1,3 +1,4 @@
+limbus company and revere:1999 LOSER
 hii you can find me by the hoyoverse area or outside the library
 
 this is still a wip
