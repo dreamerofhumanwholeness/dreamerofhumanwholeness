@@ -1,4 +1,4 @@
-limbus company and reverse:1999 LOSER
+*limbus company and reverse:1999 LOSER*
 
 hii you can find me by the hoyoverse area or outside the library
 
