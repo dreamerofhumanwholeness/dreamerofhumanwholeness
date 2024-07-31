@@ -3,7 +3,8 @@ limbus company and reverse:1999 LOSER
 hii you can find me by the hoyoverse area or outside the library
 
 this is still a wip
-pt rentry is https://rentry.co/whatswiththesekromiesdissinmygirl
+
+i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
 <!--
 **dreamerofhumanwholeness/dreamerofhumanwholeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
