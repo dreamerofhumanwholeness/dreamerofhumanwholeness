@@ -2,10 +2,12 @@
 
 hii you can find me by the hoyoverse area or outside the library
 
-this is still a wip
 ![bongy-limbus-company](https://github.com/user-attachments/assets/2a059f67-ea2e-4f01-b103-df8c8c62a1fd)
 
 i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
+
+![image](https://github.com/user-attachments/assets/dab935d5-2e6a-498c-b502-f70d7d398fa5)
+
 <!--
 **dreamerofhumanwholeness/dreamerofhumanwholeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
