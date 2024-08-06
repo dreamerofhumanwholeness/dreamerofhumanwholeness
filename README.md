@@ -6,7 +6,9 @@ hii you can find me by the hoyoverse area or outside the library
 
 i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
 
-![image](https://github.com/user-attachments/assets/dab935d5-2e6a-498c-b502-f70d7d398fa5)
+![pony-town-kiss me, son of god-stand-name-padded-5x](https://github.com/user-attachments/assets/8333b54d-611b-4e1d-b305-c6d50ad396a9) <- literally me
+
+
 
 <!--
 **dreamerofhumanwholeness/dreamerofhumanwholeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
