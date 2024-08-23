@@ -6,8 +6,6 @@ hii you can find me by the hoyoverse area or outside the library
 
 i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
 
-![pony-town-kiss me, son of god-stand-name-padded-8x](https://github.com/user-attachments/assets/4be95cfc-3947-4bf3-a843-f02c4f114300)
- <- literally me
 
 
 
