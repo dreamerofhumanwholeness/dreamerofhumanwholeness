@@ -6,7 +6,7 @@ hii you can find me by the hoyoverse area or outside the library
 
 i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
 
-<span style="font-family: 'Lucida Console';">meow</span>
+
 
 
 <!--
