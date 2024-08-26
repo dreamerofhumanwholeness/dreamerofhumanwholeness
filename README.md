@@ -1,11 +1,10 @@
-*limbus company and reverse:1999 LOSER*
+![Best Animations](https://github.com/user-attachments/assets/279f1cb8-6ec0-4db1-9d46-b133d60ff3e7)
 
-hii you can find me by the hoyoverse area or outside the library
+[rentry](https://rentry.co/The_Unloving) | [atabook](https://thetearfulthing.atabook.org/)
+<hr>
+<sup> you can find me with my friends near the library, or you can usually find me alone in the hoyoverse area or near spawn
 
-![bongy-limbus-company](https://github.com/user-attachments/assets/2a059f67-ea2e-4f01-b103-df8c8c62a1fd)
-
-i gotta remake my pt rentry so just use my main one for info rn https://rentry.co/The_Unloving
-
+mostly in the limbus company, r:1999, and yttd fandom but i make skins from other fandoms too</sup>
 
 
 
