@@ -2,6 +2,6 @@
 
 [rentry](https://rentry.co/The_Unloving) | [atabook](https://thetearfulthing.atabook.org/)
 <hr>
-<sup> you can find me with my friends near the library, or you can usually find me alone in the hoyoverse area or near spawn
+<sup> you can find me with my friends near the library, or you can usually find me alone in the hoyoverse area or near spawn </sup>
 
-mostly in the limbus company, r:1999, and yttd fandom but i make skins from other fandoms too</sup>
+<sub> mostly in the limbus company, r:1999, and yttd fandom but i make skins from other fandoms too </sub> 
